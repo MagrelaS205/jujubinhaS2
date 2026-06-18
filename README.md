@@ -4,7 +4,7 @@
 - Gosto de sair🛍️
 - Adoro ler livros de todos os tipos💆🏻‍♀️
 
-#Amo animes#
+# Amo animes
 
 ![](https://media1.tenor.com/m/b6U8HuqAUX8AAAAC/akaza-tanjiro.gif)
 
